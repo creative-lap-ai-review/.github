@@ -21,7 +21,7 @@ Whether you're a content creator, solopreneur, or small agency, Creative Lab AI 
 
 ---
 
-## 🔍 What Is Creative Lab AI?
+##  What Is Creative Lab AI?
 
 Creative Lab AI is your digital Swiss Army knife—combining over **300 premium AI tools** across:
 
@@ -98,7 +98,7 @@ Explore the complete toolkit:
 
 ## Pricing & Upgrades
 
-🎯 **Front-End Offer – Only $17.95**  
+ **Front-End Offer – Only $17.95**  
 Includes everything you need to start + 300+ tools.
 
 🔼 **Upgrades (Optional but Powerful):**
@@ -115,8 +115,8 @@ Includes everything you need to start + 300+ tools.
 - **Automation & Click Design Editions – $47–$147**  
   👉 [Get Access Here](https://vjreview.com/creative-lab-ai-review/)
 
-💰 **Total Value**: $1,900+  
-🎉 **Your Price Today**: $17.95 (One-time)
+ **Total Value**: $1,900+  
+ **Your Price Today**: $17.95 (One-time)
 
 ---
 
